@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Snood220
+- 👀 I’m interested in Music
+- 🌱 I’m currently learning Game Development
+- 💞️ I’m looking to collaborate on a small game
+- 📫 Reach me on my email pajaro.punk9500@gmail.com
